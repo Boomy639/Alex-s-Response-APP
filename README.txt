@@ -10,3 +10,5 @@
 PASSWORD FOR RAR FILE.
 (include password when finished!!!!!!!!!!!)
 #ALEX IF THERE IS NO PASSWORD SHOOT ME A DM#
+
+(warranty only available by paying £1 IRL to Me *if you know me*)
